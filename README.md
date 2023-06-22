@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at [https://manjunadhadandibhotla.github.io/Portfolio/](https://manjunadhadandibhotla.github.io/Portfolio/)
 
-- 💬 Ask me about **Front-end Development, C++**
+- 💬 Ask me about **Front-end Development, Java**
 
 - 📫 How to reach me **manjunadhadandibhotla@gmail.com**
 
