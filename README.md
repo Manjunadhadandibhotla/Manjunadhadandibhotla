@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **manjunadhadandibhotla@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lPddhVtvmGPKcYrPk2p22ojvxBXaS9mR/view?usp=sharing](https://drive.google.com/file/d/1lPddhVtvmGPKcYrPk2p22ojvxBXaS9mR/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1XDUAE_0Bc9btLPqiZiNalhwo0kvH54A2/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny
 
